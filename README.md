@@ -10,4 +10,4 @@
 
 [![Commands](https://cdn.discordapp.com/attachments/462283949087916033/521407565305872409/4.jpg)](https://hastebin.com/tisinaqubo.coffeescript)
 
->#Preimum bot open soruce by @ᵀᴳ n3k4a#0533  
+>#Preimum bot open soruce by @88#0808  
